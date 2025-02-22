@@ -2,7 +2,7 @@
 
 ## Apa Itu FF Beta Testing APK V18.7?
 
-## 📲📲🎮Klik Untuk Mengunduh🎮🎮📲📲: https://tinyurl.com/59p8mc7y
+## 📲📲🎮Klik Untuk Mengunduh🎮🎮📲📲: https://tinyurl.com/bdfh6f9k
 
 ![image](https://github.com/user-attachments/assets/b5595624-f66b-46a6-945d-16288fbd5beb)
 
